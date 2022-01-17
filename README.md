@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...anything
 - 📫 How to reach me: ...https://wa.me/+265994894966
 - 😄 Pronouns: ...🙆‍♂️
-- ⚡ Fun fact: ...nothing fan
+- ⚡ Fun fact: ...nothing fun
 -->
